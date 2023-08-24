@@ -1,1 +1,1 @@
-# evento-marista
+# Conferência Marista de Educação, Inovação e Tecnologia
